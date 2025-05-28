@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: through my social media.
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: your nose can smell 50,000 different scents.
-- ~Life is all about being kind to each other.~
+- Life is all about being kind to each other.
 
